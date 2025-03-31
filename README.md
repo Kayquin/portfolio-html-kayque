@@ -1,8 +1,8 @@
 ## EM DESENVOLVIMENTO
-<img src="https://github.com/Kayquin/Portif-lio/assets/104329791/141d0c11-dd0c-4734-ba5d-20c8edba83a1" />
+<img src="https://github.com/user-attachments/assets/dc93b610-2b0b-48b3-a0b0-90e69bdd8d81" />
 <br>
 <br>
-<img src="https://github.com/Kayquin/Portif-lio/assets/104329791/0e67a18b-a85a-4aa1-ad24-3f7a0c4ab483" />
+<img src="https://github.com/user-attachments/assets/b9d4ccdf-f28b-46f4-af5e-cb5e9e72cc8b" />
 <br>
 <br>
-<img src="https://github.com/Kayquin/Portif-lio/assets/104329791/5e80bc66-37d6-4752-9ad5-b6d54d86b681" />
+<img src="https://github.com/user-attachments/assets/72d241eb-ffe4-491a-b4e1-a0749644f22b" />
